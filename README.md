@@ -1,0 +1,2 @@
+- 👋 Hi, I'm Agnese De Angelis, a Service Designer from Milan, Italy.
+- 📫 How to reach me `agnesedea1 [at] gmail [dot] com`
